@@ -1,28 +1,28 @@
 ---
-title: Sunflower Sutra
+title: 'Service de notoyage de piscine  au c9ngo '
 date: 2019-07-16T19:17:43.000+00:00
 type: blog
 hero: "/images/adrien-olichon--aOsCcTJXWY-unsplash.jpg"
 author: Allen Ginsberg
 
 ---
-I walked on the banks of the tincan banana dock and sat down under the huge shade of a Southern Pacific locomotive to look for the sunset over the box house hills and cry.
+J'ai marché sur les rives du quai de la banane en étain et je me suis assis à l'ombre d'une locomotive du Pacifique Sud pour regarder le coucher de soleil sur les collines des maisons de boîte et pleurer.
 
-Jack Kerouac sat beside me on a busted rusty iron pole, companion, we thought the same thoughts of the soul, bleak and blue and sad-eyed, surrounded by the gnarled steel roots of trees of machinery.
+Jack Kerouac était assis à côté de moi sur un poteau de fer rouillé cassé, compagnon, nous pensions les mêmes pensées de l'âme, sombre et bleue et aux yeux tristes, accompagné par les racines d'acier noueuses des arbres de la machinerie.
 
 ![](/images/elcarito-CRn-_80z4SE-unsplash.jpg)
 
-The only water on the river mirrored the red sky, sun sank on top of final Frisco peaks, no fish in that stream, no hermit in those mounts, just ourselves rheumy-eyed and hung-over like old bums on the riverbank, tired and wily.
+La seule eau de la rivière reflétait le ciel rouge, le soleil se couchait au sommet des derniers pics de Frisco, pas de poisson dans ce ruisseau, pas d'ermite dans ces monts, juste nous-mêmes les yeux chassieux et la gueule de bois comme de vieux clochards sur la berge, fatigués et rusés.
 
-Look at the Sunflower, he said, there was a dead gray shadow against the sky, big as a man, sitting dry on top of a pile of ancient sawdust--
+Regarde le Tournesol, dit-il, il y avait une ombre grise morte dans le ciel, grosse comme un homme, assise sèche au sommet d'un tas d'ancienne sciure de bois...
 
-\--I rushed up enchanted--it was my first sunflower, memories of Blake--my visions--Harlem
+\--Je me suis précipité enchanté--c'était mon premier tournesol, des souvenirs de Blake--mes visions--Harlem
 
-# "the gray Sunflower poised against the sunset, crackly bleak and dusty with the smut and smog and smoke of olden locomotives in its eye"
+# "le tournesol gris en équilibre contre le coucher du soleil, craquant et poussiéreux avec le charbon, le smog et la fumée des anciennes locomotives dans ses yeux"
 
-and Hells of the Eastern rivers, bridges clanking Joes greasy Sandwiches, dead baby carriages, black treadless tires forgotten and unretreaded, the poem of the riverbank, condoms & pots, steel knives, nothing stainless, only the dank muck and the razor-sharp artifacts passing into the past--
+et les enfers des rivières de l'Est, les ponts qui claquent Joes, des sandwichs graisseux, des landaus morts, des pneus noirs sans bande de roulement oubliés et non rechapés, le poème de la berge, des préservatifs et des pots, des couteaux en acier, rien d'inoxydable, seulement la boue humide et les artefacts tranchants comme des rasoirs passer dans le passé--
 
-and the gray Sunflower poised against the sunset, crackly bleak and dusty with the smut and smog and smoke of olden locomotives in its eye--
+et le Tournesol gris posé contre le coucher du soleil, craquant et poussiéreux avec le charbon, le smog et la fumée des vieilles locomotives dans ses yeux -
 
 corolla of bleary spikes pushed down and broken like a battered crown, seeds fallen out of its face, soon-to-be-toothless mouth of sunny air, sunrays obliterated on its hairy head like a dried wire spiderweb,
 
@@ -36,8 +36,8 @@ The grime was no man's grime but death and human locomotives,
 
 all that dress of dust, that veil of darkened railroad skin, that smog of cheek, that eyelid of black mis'ry, that sooty hand or phallus or protuberance of artificial worse-than-dirt--industrial--modern--all that civilization spotting your crazy golden crown--
 
-and those blear thoughts of death and dusty loveless eyes and ends and withered roots below, in the home-pile of sand and sawdust, rubber dollar bills, skin of machinery, the guts and innards of the weeping coughing car, the empty lonely tincans with their rusty tongues alack, what more could I name, the smoked ashes of some cock cigar, the cunts of wheelbarrows and the milky breasts of cars, wornout asses out of chairs & sphincters of dynamos--all these
+et ces pensées lugubres de mort et d'yeux et de bouts poussiéreux sans amour et de racines desséchées en dessous, dans le tas de sable et de sciure de bois, de billets de banque en caoutchouc, de peau de machinerie, les tripes et les entrailles de la voiture qui pleure et qui tousse, les boîtes de conserve vides et solitaires avec leurs langues rouillées, que pourrais-je nommer de plus, les cendres fumées d'un cigare de coq, les chattes des brouettes et les seins laiteux des voitures, les culs usés des chaises et les sphincters des dynamos - tout cela
 
-entangled in your mummied roots--and you standing before me in the sunset, all your glory in your form!
+empêtré dans tes racines momifiées - et toi debout devant moi au coucher du soleil, toute ta gloire sous ta forme !
 
-A perfect beauty of a sunflower! a perfect excellent lovely sunflower existence! a sweet natural eye to the new hip moon, woke up alive and excited grasping in the sunset shadow sunrise golden monthly breeze!
+Une beauté parfaite d'un tournesol! une parfaite excellente belle existence de tournesol! un doux œil naturel sur la nouvelle lune de la hanche, je me suis réveillé vivant et excité en saisissant dans l'ombre du coucher du soleil la brise mensuelle dorée du lever du soleil !
