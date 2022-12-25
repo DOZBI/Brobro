@@ -1,21 +1,21 @@
 ---
-title: Song of Myself
+title: 'Reagir '
 date: 2019-07-11T19:17:43.000+00:00
 type: blog
 hero: "/images/ren-ran-bBiuSdck8tU-unsplash.jpg"
 author: Walt Whitman
 
 ---
-I have heard what the talkers were talking, the talk of the  
-beginning and the end
+J'ai entendu ce que les locuteurs parlaient, le discours du   
+début et de la fin
 
-But I do not talk of the beginning or the end. There was never any more inception than there is now, Nor any more youth or age than there is now, And will never be any more perfection than there is now,  
-Nor any more heaven or hell than there is now.
+Mais je ne parle ni du début ni de la fin. Il n'y a jamais eu plus de commencement qu'il n'y en a maintenant, Ni plus de jeunesse ou d'âge qu'il n'y en a maintenant, Et il n'y aura jamais plus de perfection qu' il n'y en a maintenant,   
+Ni plus de paradis ou d'enfer qu'il n'y en a maintenant.
 
-Urge and urge and urge, Always the procreant urge of the world.  
-Out of the dimness opposite equals advance, always substance and  
-increase, Always a knit of identity, always distinction, always a breed of life. To elaborate is no avail, learn'd and unlearn'd feel that it is  
-so.
+Exhortez et exhortez et exhortez, Toujours l'envie procréatrice du monde.   
+Hors de l'obscurité opposée égale avance, toujours substance et   
+augmentation, Toujours un tricot d'identité, toujours distinction, toujours une race de vie. Élaborer ne sert à rien, les savants et les non-savants sentent qu'il en est   
+ainsi.
 
 Sure as the most certain sure, plumb in the uprights, well entretied, braced in the beams, Stout as a horse, affectionate, haughty, electrical, I and this mystery here we stand.
 
@@ -31,4 +31,4 @@ Knowing the perfect fitness and equanimity of things, while they discuss I am si
 
 Welcome is every organ and attribute of me, and of any man hearty and clean, Not an inch nor a particle of an inch is vile, and none shall be less familiar than the rest.
 
-I am satisfied—I see, dance, laugh, sing; As the hugging and loving bed-fellow sleeps at my side through the night, and withdraws at the peep of the day with stealthy tread. Leaving me baskets cover'd with white towels swelling the house with their plenty, Shall I postpone my acceptation and realization and scream at my eyes, That they turn from gazing after and down the road, And forthwith cipher and show me to a cent, Exactly the value of one and exactly the value of two, and which is ahead?
+Je suis satisfait — je vois, danse, ris, chante ; Alors que le compagnon de lit étreignant et aimant dort à mes côtés toute la nuit, et se retire au piaulement de la journée d'un pas furtif. Me laissant des paniers couverts de serviettes blanches gonflant la maison de leur abondance, Dois-je différer mon acceptation et ma réalisation et crier à mes yeux, Qu'ils se détournent de regarder après et en bas de la route, Et immédiatement chiffrer et me montrer jusqu'à un cent, Exactement la valeur de un et exactement la valeur de deux, et laquelle est devant ?
